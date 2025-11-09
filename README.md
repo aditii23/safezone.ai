@@ -154,4 +154,4 @@ For questions and support, please reach out through the contact form in the appl
 
 ---
 
-**SafeZone AI** - Travel safely with real-time risk intelligence ..🌍✈️
+**SafeZone AI** - Travel safely with real-time risk intelligence...🌎✈️
